@@ -32,7 +32,7 @@ dnc my skins pls... appreciate it mate.
 
 
 <p align="center">
-strawpage will be done whenever im not that fucking lazy to make one.<img width="30" height="20" src="https://github.com/user-attachments/assets/676f4c86-c93d-412a-8e10-6d5bac1cb9f6" />
+strawpage will be done whenever im not that fucking lazy to make one. <img width="20" height="20" src="https://github.com/user-attachments/assets/676f4c86-c93d-412a-8e10-6d5bac1cb9f6" />
 
 
 
