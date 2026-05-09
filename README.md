@@ -16,4 +16,4 @@ do not follow [@loonaclows](https://github.com/loonaclows) he bullies me DAILY !
 
 <div align="center">
   
-$${\color{C08071}my comrades . }$$
+$${\color{C08071}my \space comrades .}$$
