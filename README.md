@@ -11,3 +11,4 @@ $${\color{C08071}c*h \space encouraged .}$$
 do not follow [@loonaclows](https://github.com/loonaclows) he bullies me DAILY !!!!!!!! 
 
 <img width="833" height="412" alt="Untitled14_20260509155713" src="https://github.com/user-attachments/assets/ebd9c6c4-2e18-49ca-882c-40e5241f53aa" />
+<img width="1143" height="405" alt="awwwwmyfamily" src="https://github.com/user-attachments/assets/59750777-6f39-4470-aba2-907167935b08" />
