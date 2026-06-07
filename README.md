@@ -1,5 +1,6 @@
 <p align="center" />
   
-<img width="736" height="736" alt="IMG_6720" src="https://github.com/user-attachments/assets/49e078b3-cb6f-4f0d-8dc6-e9404eae71dc" />
+<img width="736" alt="IMG_6737" src="https://github.com/user-attachments/assets/81eb7167-d7d8-4c83-8ea9-85288b65a5b3" />
+
 
 wip. 👀
